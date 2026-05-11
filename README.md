@@ -4,8 +4,6 @@
 
 ### `software engineer // creative systems designer`
 <br>
-<img src="https://i.imgur.com/y04mOqa.png" width="100%" />
-
 </div>
 
 ---
